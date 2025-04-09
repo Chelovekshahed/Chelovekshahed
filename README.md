@@ -1,7 +1,7 @@
 u- 👋 Hi, I’m Chelovekshahed
 - 👀 I’m interested in ...gujghftnhyfh
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on fdtuse5uyitfukvigbu;yfoygui
+- 💞️ I’m looking to collaborate on bvditcvgbhgfdytug
 - 📫 How to reach me ...
 - 😄 Pronouns: ...duyjkgvfreg
 - ⚡ Fun fact: cookie
